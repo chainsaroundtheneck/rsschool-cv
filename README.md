@@ -1,1 +1,1 @@
-# rsschool-cv
+https://chainsaroundtheneck.github.io/rsschool-cv/cv
